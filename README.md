@@ -1,6 +1,6 @@
 ### Hi! 👋
 
-It's just me, K6.
+Welcome to my Github!
 
 Pronouns: he/him
 
