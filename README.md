@@ -1,8 +1,4 @@
-### Hi! 👋
+### Hello blyat.
 
-Welcome to my Github!
+Welcome to my profile.
 
-Pronouns: he/him
-
-
-[muh carrd](https://amdk6.carrd.co)
