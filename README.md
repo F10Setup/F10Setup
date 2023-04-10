@@ -2,4 +2,4 @@
 
 Welcome to my profile.
 
-Prounouns: they/them (non-binary, pansexual)
+Prounouns: they/them (non-binary, aroace)
